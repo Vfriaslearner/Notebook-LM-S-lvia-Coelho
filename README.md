@@ -12,6 +12,8 @@ Curadoria de fontes: Segue aqui,algumas das fontes utilizadas para a fundamenta�
 
 Deu Para entender que Sílvia Coelho é uma das matriarcas da Tecnologia,embora,segundo suas palavras, ao longo de seu crescimento acadêmico,ela não retratou tratamento desigual em seus cursos tecnicos e de universidades, tanto no estado do Pará,quanto nos estados do sudeste e mesmo quando ela tomou conhecimento das pautas de gênero,ela passou a ser protagonista na inclusão de mulheres na àrea de Tech ,tanto na retenção de talentos,inclusão do mercado de trabalho e retorno a ele após idades 40+ e pós-maternidade, em uma época onde ,infelizmente,as empresas fazem questão de pagar menos as mulheres pelo fato de serem mulheres..Um completo Absurdo! 
 
+Quem quiser olhar o Notebook,basta olhar o link:https://notebooklm.google.com/notebook/f2bc9309-acc0-46b2-8ff3-9feddb0ff998
+
 
 
 
