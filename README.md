@@ -10,7 +10,9 @@ Curadoria de fontes: Segue aqui,algumas das fontes utilizadas para a fundamenta�
 1.https://docs.google.com/document/d/1NEhrdU8Wu-kjuOd1lwh_h6FDGsvjixWr_5MYoWtJzM8/edit?usp=sharing 
 É uma ferramenta que economiza o tempo de quem precisa fazer uma pesquisa profunda e não tem tempo. 
 
-Deu Para entender que Sílvia Coelho é uma das matriarcas da Tecnologia,embora,segundo suas palavras, ao longo de seu crescimento acadêmico,ela não retratou tratamento desigual em seus cursos tecnicos e de universidades, tanto no estado do Pará,quanto nos estados do sudeste e mesmo quando ela tomou conhecimento das pautas de gênero,ela passou a ser protagonista na inclusão de mulheres na àrea de Tech ,tanto na retenção de talentos,inclusão do mercado de trabalho e retorno a ele após idades 40+ e pós-maternidade, em uma época onde ,infelizmente,as empresas fazem questão de pagar menos as mulheres pelo fato de serem mulheres..Um completo Absurdo!
+Deu Para entender que Sílvia Coelho é uma das matriarcas da Tecnologia,embora,segundo suas palavras, ao longo de seu crescimento acadêmico,ela não retratou tratamento desigual em seus cursos tecnicos e de universidades, tanto no estado do Pará,quanto nos estados do sudeste e mesmo quando ela tomou conhecimento das pautas de gênero,ela passou a ser protagonista na inclusão de mulheres na àrea de Tech ,tanto na retenção de talentos,inclusão do mercado de trabalho e retorno a ele após idades 40+ e pós-maternidade, em uma época onde ,infelizmente,as empresas fazem questão de pagar menos as mulheres pelo fato de serem mulheres..Um completo Absurdo! 
+
+
 
 
 
